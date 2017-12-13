@@ -7,7 +7,7 @@ Tham khảo <a href = "http://vivatrantravel.vn/ve-may-bay-di-nga.html">giá vé
 
 Nước Nga có tên chính thức là Cộng hòa Liên bang Nga, một đất nước xã hội chủ nghĩa cực kì phát triển, cực kì rộng lớn, giàu có và mang những nét đẹp cuốn hút.
 
-<img src = "https://vemaybaysingaporeairlines.com/wp-content/uploads/2016/04/ve-may-bay-di-nga.jpg" />
+<img src="https://vemaybaysingaporeairlines.com/wp-content/uploads/2016/04/ve-may-bay-di-nga.jpg" />
 
 Cái khó khăn mà bạn có thể gặp phải khi đi du lịch ở Nga chính là khó khăn về thời tiết và khí hậu ở đây.
 
